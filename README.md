@@ -30,6 +30,16 @@ CIMAGE is renowned for its commitment to academic excellence and industry-releva
 
 After completing intermediate education, students often find themselves at a crossroads, unsure of which career path to pursue. In such a critical phase, choosing the right educational institution becomes paramount. <a href="https://www.cimage.in/">CIMAGE</a> stands as a beacon of excellence, offering a various career options tailored to individual aspirations and providing exceptional placement opportunities. In this article, we will delve into the reasons why CIMAGE is the preferred choice for students seeking career guidance after intermediate, the diverse career options available, and shed light on the institution's exemplary placement track record.
 
+
 <h4><a href="https://www.cimage.in/">Top BBM College </a></h4>
 
 When it comes to pursuing a Bachelor of Business Management (BBM) degree in Patna, CIMAGE emerges as the premier choice among students and industry professionals. With its commitment to academic excellence, industry-focused curriculum, and exceptional faculty, <a href="https://www.cimage.in/">CIMAGE</a> has rightfully earned its reputation as the best BBM college in Patna. Choosing CIMAGE for a BBM degree ensures a transformative educational experience that prepares students to thrive in the competitive field of business management.
+
+<h4><a href="https://www.cimage.in/">BCA Eligibility</a></h4>
+The eligibility criteria for BCA (Bachelor of Computer Applications) admissions can vary slightly between colleges and universities. However, here are the general eligibility requirements:
+
+Educational Qualifications: Applicants should have completed their higher secondary education (10+2) or an equivalent examination from a recognized board, such as CBSE, ICSE, or State Board.
+
+Minimum Percentage: Most colleges require a minimum percentage of marks in the qualifying examination. The exact percentage requirement can vary, but it typically falls between 45% and 55%. Some colleges may also have specific subject-wise minimum marks requirements, such as in mathematics or computer science.
+
+Subject Requirements: Applicants are generally expected to have studied certain subjects at the higher secondary level, usually including mathematics and/or computer science. The specific subject requirements may vary from college to college.
