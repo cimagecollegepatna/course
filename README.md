@@ -43,3 +43,18 @@ Educational Qualifications: Applicants should have completed their higher second
 Minimum Percentage: Most colleges require a minimum percentage of marks in the qualifying examination. The exact percentage requirement can vary, but it typically falls between 45% and 55%. Some colleges may also have specific subject-wise minimum marks requirements, such as in mathematics or computer science.
 
 Subject Requirements: Applicants are generally expected to have studied certain subjects at the higher secondary level, usually including mathematics and/or computer science. The specific subject requirements may vary from college to college.
+
+<h4><a href="https://www.cimage.in/">Career Opportunity after BCA Course</a></h4>
+A BCA (Bachelor of Computer Applications) degree opens up a wide range of career opportunities in the ever-expanding field of information technology. Here are some of the career paths you can pursue after completing your BCA:
+
+Software Developer/Engineer
+Web Developer
+Database Administrator
+Network Administrator
+Systems Analyst
+IT Project Manager
+Cybersecurity Analyst
+IT Consultant
+Business Analyst
+
+
