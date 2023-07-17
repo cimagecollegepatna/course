@@ -77,6 +77,9 @@ When it comes to pursuing a career in the field of business management, two popu
 <h4><a href="https://www.cimage.in/">What is the difference between BBA and BBM?</a></h4>
 In the realm of business management education, two prominent undergraduate degree programs often create a dilemma for aspiring students: <a href="https://www.cimage.in/">Bachelor of Business Administration (BBA)</a> and Bachelor of Business Management (BBM). While both programs offer a solid foundation in business principles, they diverge in their areas of focus, curriculum, and the specific skills they impart. This article aims to shed light on the dissimilarities between BBA and BBM, helping students make informed decisions about their academic pursuits.
 
+<h4><a href="https://www.cimage.in/">What is the difference between BBA and BA ?</a></h4>
+When it comes to pursuing an undergraduate degree, two popular options are the <a href="https://www.cimage.in/">Bachelor of Business Administration (BBA)</a> and the Bachelor of Arts (BA). While both degrees offer valuable educational experiences, they differ significantly in terms of focus, curriculum, and career opportunities. This article aims to explore the differences between BBA and BA, providing insights to help students make an informed decision about their academic and professional paths.
+
 
 
 
