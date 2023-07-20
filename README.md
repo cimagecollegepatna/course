@@ -83,6 +83,8 @@ When it comes to pursuing an undergraduate degree, two popular options are the <
 <h4><a href="https://www.cimage.in/">BBA Course Overview</a></h4>
 A BBA course, also known as a Bachelor of Business Administration, is an undergraduate degree program that focuses on teaching students the concepts and skills needed to succeed in the business world. The curriculum typically includes classes in areas such as accounting, finance, marketing, and management. A <a href="https://www.cimage.in/best-bba-college-in-patna">BBA</a> program typically takes four years to complete and aims to provide students with a broad understanding of the various aspects of business. The curriculum usually includes a mix of core courses and electives that allow students to specialize in a particular area of business.
 
+<h4><a href="https://www.cimage.in/">BCA Course Overview</a></h4>
+Bachelor of Computer Application (BCA) is an undergraduate degree program in the field of computer applications. The program is designed to provide students with a strong foundation in computer science and applications, along with essential skills in communication, management, and problem-solving. <a href="https://www.cimage.in/">BCA</a> is a three-year program in India that is offered by many universities and colleges. It is a popular choice for students who are interested in pursuing a career in the IT industry. The program is designed to provide students with a comprehensive understanding of computer science and its applications, including programming languages, software development, database management, and networking.
 
 
 
