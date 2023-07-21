@@ -86,5 +86,8 @@ A BBA course, also known as a Bachelor of Business Administration, is an undergr
 <h4><a href="https://www.cimage.in/">BCA Course Overview</a></h4>
 Bachelor of Computer Application (BCA) is an undergraduate degree program in the field of computer applications. The program is designed to provide students with a strong foundation in computer science and applications, along with essential skills in communication, management, and problem-solving. <a href="https://www.cimage.in/">BCA</a> is a three-year program in India that is offered by many universities and colleges. It is a popular choice for students who are interested in pursuing a career in the IT industry. The program is designed to provide students with a comprehensive understanding of computer science and its applications, including programming languages, software development, database management, and networking.
 
+<h4><a href="https://www.cimage.in/">BCA vs BSC-IT</a></h4>
+In today's technology-driven world, the demand for skilled professionals in the field of information technology (IT) continues to soar. As a result, numerous educational paths have emerged to cater to the aspirations of students seeking a career in this domain. Two popular options that often perplex students are Bachelor of Computer Applications (BCA) and Bachelor of Science in Information Technology (BSc-IT). While both programs have similarities, they also possess distinct characteristics that set them apart. In this article, we will delve into the key differences between <a hre="https://www.cimage.in/">BCA </a> and BSc-IT to help students make an informed decision about their academic journey and future career prospects.
+
 
 
